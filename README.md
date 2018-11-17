@@ -1,0 +1,2 @@
+# Cursed
+Juego Cursed Tale
